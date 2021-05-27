@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hama-1k
-- 👀 I’m interested in ...Develpers
+- 👀 I’m interested in ...Developers
 - 🌱 I’m currently learning ...medium
 - 💞️ I’m looking to collaborate on ...Not Thanks
 - 📫 How to reach me ...Github😎😬
