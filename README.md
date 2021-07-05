@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hama-1k /🍀\
-- 👀 I’m interested in ...Developers
-- 🌱 I’m currently learning ...medium
-- 💞️ I’m looking to collaborate on ...Not Thanks
+- 👀 I'm interested in learning... ❪Developers❫
+- 🌱 I've been working in discord for two years.
+- 💞️ I don't belong to any group or organization.
 - 📫 How to reach me ...Github😎😬
 
 <!---
